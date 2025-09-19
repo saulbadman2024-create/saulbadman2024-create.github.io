@@ -1,1 +1,1 @@
-[photo of the person](xx.jpg)
+[photo of the person](xxx.jpg)
