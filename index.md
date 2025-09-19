@@ -1,7 +1,7 @@
 # Dinesh P
 
 🎓 3rd Year (6th Semester), B.A. L.L.B., (Hons.)  
-School of Law, SASTRA University  
+School of Law, SASTRA University                                                      (xxx.jpg)
 
 📧 [dineshdkofficial06@gmail.com](mailto:dineshdkofficial06@gmail.com)  
 📞 +91 93423 11103  
