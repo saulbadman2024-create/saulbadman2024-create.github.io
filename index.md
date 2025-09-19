@@ -17,4 +17,4 @@ Hi, I’m **Dinesh P**, a law student passionate about hot milk
 -  
 - [Experience](experience.md)  
 - [Contact](contact.md)  
-![Alt text](xxx.jpg)
+
